@@ -1,1 +1,0 @@
-# blog_course_project
